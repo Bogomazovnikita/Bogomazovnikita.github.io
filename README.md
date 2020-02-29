@@ -1,1 +1,1 @@
-# bogomazovnikita.github.io
+# В рот ебал я этот гитхаб
